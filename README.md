@@ -6,9 +6,8 @@
 Here me, Enggar Reksi Wardhani:
 
 - 🔭 I’m currently working on something cool 
-- 🌱 I’m currently learning Geophysics
+- 🌱 I’m currently learning Geophysics 
 - 📫 How to reach me: @enggarrw
-- ⚡ Fun fact: I LOVE ICE TEA SO MUCH
 - 😄 NICE TO MEET YOU
 
 
