@@ -2,9 +2,11 @@
 ![hello](https://user-images.githubusercontent.com/111742028/188883418-b42e113d-f5ec-47a0-9fd6-febeb336ff39.gif)
 
 
-Hi everyone, I'm Enggar Reksi Wardhani. Just call me Enggar🙌
+Welcome everyone, sugeng rawuh, selamat datang 🙌 
 
-- I'm a college student at Gadjah Mada University. I’m currently learning Geophysics. Geophysics is so interesting 🌍
-- NICE TO MEET YOU 😊
+Halo, aku Enggar Reksi Wardhani, panggil aku Enggar. 
+Aku seorang mahasiswi Geofisika Universitas Gadjah Mada 2021. Selain suka tentang sains, aku juga menyukai seni sastra. 
+
+NICE TO MEET YOU 😊
 
 
