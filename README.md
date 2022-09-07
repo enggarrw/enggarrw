@@ -1,5 +1,6 @@
 
-![hello](https://user-images.githubusercontent.com/111742028/188883418-b42e113d-f5ec-47a0-9fd6-febeb336ff39.gif)
+
+![welcome](https://user-images.githubusercontent.com/111742028/188886878-4e8487ea-3afa-4be2-98a3-38ffa92edce9.gif)
 
 
 Welcome everyone, sugeng rawuh, selamat datang 🙌 
